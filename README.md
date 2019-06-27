@@ -1,2 +1,2 @@
 # ctf
-“Train yourself to let go of everything you fear to lose.”
+ “ Judge me by my size, do you?” ...
